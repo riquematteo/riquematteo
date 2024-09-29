@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Henrique Matteo
+- 👀 I’m interested in business, marketing, AI, programming, music and sports
+- 🌱 I’m currently learning digital marketing, HTML and startup development.
+- 💞️ I’m looking to collaborate on startup developments, sustaineble ideias, and developments of softwers, and i am open to learn new things, change my point of view and discuss innovations.
